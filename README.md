@@ -1,4 +1,4 @@
-### Hi! I am Rinju, an Aspiring Software Engineer!
+### Hi! this is Rinju, an Aspiring Software Engineer!
 
 <br/>
 
